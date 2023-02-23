@@ -51,3 +51,5 @@ https://user-images.githubusercontent.com/56988/220930197-4df53b3d-dd12-4552-b51
 ![machine 7](https://user-images.githubusercontent.com/56988/220967319-ef6c891f-2040-4acd-9f32-5d156f4e2715.png)
 
 ![machine 8](https://user-images.githubusercontent.com/56988/220968237-b32802b2-e8c7-4405-bee2-d5653adc38e2.png)
+
+![machine 9](https://user-images.githubusercontent.com/56988/220971462-76cbbbfb-745c-4200-bfad-554522aa39b5.jpg)
