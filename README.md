@@ -49,3 +49,5 @@ https://user-images.githubusercontent.com/56988/220930197-4df53b3d-dd12-4552-b51
 ![machine 6](https://user-images.githubusercontent.com/56988/220966403-42269a86-8f0d-408c-a984-92b1b28261bf.png)
 
 ![machine 7](https://user-images.githubusercontent.com/56988/220967319-ef6c891f-2040-4acd-9f32-5d156f4e2715.png)
+
+![machine 8](https://user-images.githubusercontent.com/56988/220968237-b32802b2-e8c7-4405-bee2-d5653adc38e2.png)
