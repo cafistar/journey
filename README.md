@@ -22,7 +22,7 @@ https://user-images.githubusercontent.com/56988/220911829-a826661f-8acb-4d01-b5c
 
 ![Battery rechargeable2](https://user-images.githubusercontent.com/56988/220912999-0188b9af-e415-41f8-ba8c-50a3a277e078.jpg)
 
-## B1 Floor, how to go 
+## B1 Floor / How to get to the ticket machine
 
 https://user-images.githubusercontent.com/56988/220930197-4df53b3d-dd12-4552-b510-977cdba46a91.mp4
 
