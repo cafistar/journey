@@ -33,3 +33,6 @@ https://user-images.githubusercontent.com/56988/220930197-4df53b3d-dd12-4552-b51
 ![B1 3](https://user-images.githubusercontent.com/56988/220932421-917eaf07-386f-402c-9315-eab4939577fa.jpg)
 
 ![B1 4](https://user-images.githubusercontent.com/56988/220932585-dc7b2cb7-8c17-43b3-9431-2db16f199ba5.jpg)
+
+## How to buy ticket, from Narita-Ku-Ko station to Ikebukuro station
+
