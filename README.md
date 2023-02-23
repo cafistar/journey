@@ -42,3 +42,4 @@ https://user-images.githubusercontent.com/56988/220930197-4df53b3d-dd12-4552-b51
 
 ![machine 3](https://user-images.githubusercontent.com/56988/220952510-9884d1f1-c69e-47ba-8daf-f10d5c01976d.png)
 
+![machine 4](https://user-images.githubusercontent.com/56988/220957016-d64779df-68b3-48f1-a711-8ad300fb5956.png)
