@@ -1,4 +1,4 @@
-# Bonus
+# Extra
 
 How to use the gacha machines at Narita Airport:
 
