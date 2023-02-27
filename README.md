@@ -3,7 +3,7 @@ Arrival at Narita Airport up until the purchase of tickets to your next destinat
 [jp](1.md) / [en](en/1.md)
  
 1. 京成スカイライナーへ乗車してから、日暮里駅でJR山手線へ乗り換えるまで  
-From before you go through the ticket gates at Narita Airport to changing trains at Nippori station  
+From the ticket gates at Narita Airport to changing trains at Nippori station  
 [jp](2.md) / [en](en/2.md)
    
 1. JR山手線へ乗車してから、鶴ヶ島駅へ到着するまで  
